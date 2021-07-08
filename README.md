@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @drals7
+- 👀 I’m interested in coding, and cognitive neuroscience
+- 🌱 I’m currently learning computer science
+- 📫 How to reach me ... asemertzis@gmail.com
